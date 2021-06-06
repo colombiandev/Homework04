@@ -1,1 +1,3 @@
 # Homework04
+
+Was unable to finish this assigment. The past week and a bit has been difficult due to personal issues revolving around anxiety and depression. I am in the process of seeking help with my family doctor. I am not asking for an extension and will take responsibility for my grade but since the course has a limit of 2 missed or incomplete assigments I was hoping if it was possible to not count this as one of them. Let me know. Thanks.
